@@ -1,1 +1,1 @@
-# greetings travelers and explorers
+# greetings travelers and explorers of
